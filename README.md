@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @Solevar78
+- 👋 Hi, I’m @TESSERACT
 - 👀 I’m interested in viruses
 - 🌱 I’m currently learning in the school 
 - 💞️ I’m looking to collaborate on да хуй знает
 - 📫 How to reach me tellegram - @Solevar78
 - 😄 Pronouns: я гей
-- ⚡ Fun fact: 3000 hours in the game Dota 2
+- ⚡ Fun fact: 3000 hours in the game Dota 2 and I love beer
 
 <!---
 Solevar78/Solevar78 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
