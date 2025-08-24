@@ -2,7 +2,7 @@
 - 👀 I’m interested in viruses
 - 🌱 I’m currently learning in the school 
 - 💞️ I’m looking to collaborate on да хуй знает
-- 📫 How to reach me tellegram - @Solevar78
+- 📫 How to reach me telegramm - @pankoza1
 - 😄 Pronouns: no
 - ⚡ Fun fact: 3000 hours in the game Dota 2
 
